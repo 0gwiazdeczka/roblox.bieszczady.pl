@@ -1,2 +1,2 @@
-# roblox.bydgoszcz.pl
-roblox.bydgoszcz.pl
+# roblox.bieszczady.pl
+roblox.bieszczady.pl
